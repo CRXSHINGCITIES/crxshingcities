@@ -1,8 +1,8 @@
-##### - hello i don't know how to use markdown and i can't be fucked to figure it out today, look at my toyhouse profile for pretty html
+### hello i don't know how to use markdown and i can't be fucked to figure it out today, look at my toyhouse profile for pretty html
 
 
 
-basic information -
+#### basic information -
 
   ⬲ **name:** **jericho** / crash / ghost
   
@@ -18,7 +18,7 @@ basic information -
 
 
   
-  ⬲ **ponytown specific boundaries:** i love sitting w people! i might not notice immediately when someone sits by me, but C+H is always cool with me! i do hide people liberally though, usually 24h! i will block people if i'm annoyed enough ! the online experience is meant to be curated and i do it often
+  ⬲ **ponytown specific boundaries:** i love sitting w people! i might not notice immediately when someone sits by me, but C+H is always cool with me! i do hide people liberally though, usually 24h! i will block people if i'm annoyed enough ! the online experience is meant to be curated and i do so frequently
 
 
 
