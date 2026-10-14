@@ -26,4 +26,4 @@
 
 
 
-  ⬲ **my pookies:** [Cy](https://x.com/cyborgtrash) / [Rhys](https://x.com/Rhys_Puffs) / [Bones](https://x.com/not_my_b0nes) / [Seraph](https://x.com/D3adS3raph1m)
+  ⬲ **my pookies:** [Cy](https://x.com/cyborgtrash) / [Rhys](https://x.com/Rhys_Puffs) / [Bones](https://x.com/not_my_b0nes) / [Seraph](https://x.com/D3adS3raph1m) <--- all of them draw and i love them more than anything go check them out
