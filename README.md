@@ -4,17 +4,17 @@
 
 #### basic information -
 
-  ⬲ **name:** **jericho** / crash / ghost
+  ⬲ **name:** **jericho** **/** crash **/** ghost
   
   ⬲ **age:** 23 [10/30]
   
-  ⬲ **pronouns:** they / he
+  ⬲ **pronouns:** they **/** he
   
-  ⬲ **interests:** Degrees of Lewdity / Dragon Age [whole trilogy but mostly 2] / Mass Effect / The Sims 4 / Outlast [primarily Trials and Whistleblower] / No, I'm Not a Human / my own OCs most of the time
+  ⬲ **interests:** Degrees of Lewdity **/** Dragon Age [whole trilogy but mostly 2] **/** Mass Effect **/** The Sims 4 **/** Outlast [primarily Trials and Whistleblower] **/** No, I'm Not a Human **/** my own OCs most of the time
   
-  ⬲ **favorite characters:** Sydney, Kylar, Whitney, Robin (DoL) / Naveen (PkMn L:ZA) / Fenris (DA:2) / Eddie Gluskin (OTL:W) / John MacTavish, Ghost, Gaz (MW:22) / Viscous, Billy (Deadlock) / Lucio (OW) / Quicksilver (X-Men, specifically Days of Future Past) / Infected (Regretevator)
+  ⬲ **favorite characters:** Sydney, Kylar, Whitney, Robin (DoL) **/** Naveen (PkMn L:ZA) **/** Fenris (DA:2) **/** Eddie Gluskin (OTL:W) **/** John MacTavish, Ghost, Gaz, Alex (CoD:MW) **/** Viscous, Billy (Deadlock) **/** Lucio (OW) **/** Quicksilver (X-Men, specifically Days of Future Past) **/** Infected (Regretevator)
   
-  ⬲ **misc:** i'm autistic among other things and generally struggle w tone and being present, but i'm actively working on getting better! i may request clarifications on tone in conversations because of that / i looove modding video games, particularly the sims 4, and take a great amount of joy in screenarchery !
+  ⬲ **misc:** i'm autistic among other things and generally struggle w tone and being present, but i'm actively working on getting better! i may request clarifications on tone in conversations because of that **/** i looove modding video games, particularly the sims 4, and take a great amount of joy in screenarchery !
 
 
   
