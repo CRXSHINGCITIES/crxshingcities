@@ -6,7 +6,7 @@
 
 $\large\color{#7F88A0}{\textsf{⬲ name:}}$ **jericho** **/** crash **/** ghost
   
-$\large\color{#7F88A0}{\textsf{⬲ age:}}$ 23 [10/30]
+$\large\color{#7F88A0}{\textsf{⬲ age:}}$ 24 [10/30]
   
 $\large\color{#7F88A0}{\textsf{⬲ pronouns:}}$ they **/** he
 
